@@ -23,8 +23,14 @@ Alec Shane Benjamin is an american songwriter who has written over 3 albums in S
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5Wvcnn5547f6xz8F9Kz6rO?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ### More Fun Facts about him
-  In 2023, he opened for **John Mayer** for a portion of **Mayer's Solo tour in North America**. On 15 October of the same year, he was on the annual **Minecraft Live show** to sing a parody of his song, **Let Me Down Slowly** using words from the Minecraft game universe.
+  In 2023, he opened for **John Mayer** for a portion of **Mayer's Solo tour in North America**. 
+
+![alec-mayer](https://pmstudio.com/pmstudio/images/Alec-Benjamin17.jpg)
+
+  On 15 October of the same year, he was on the annual **Minecraft Live show** to sing a parody of his song, **Let Me Down Slowly** using words from the Minecraft game universe.
 
   He speaks and sings in **Mandarin Chinese**, collaborating with popular Chinese actress **Zhao Lusi** in an Mandarin translated version of Water Fountain
+
+![zhao-alec](https://i.ytimg.com/vi/u_yiFPJF58o/sddefault.jpg)
 
   Alec has cited influences such as **Eminem**, **John Mayer**, **Jason Mraz**, **Paul Simon**, **Joe Avneri**, and **Chris Martin of Coldplay**. He has also expressed admiration for **Kendrick Lamar** and classic singer-songwriters such as **Joni Mitchell**, **Leonard Cohen**, **Carole King**, and **Jackson Browne**.
