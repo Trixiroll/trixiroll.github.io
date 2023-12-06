@@ -27,6 +27,10 @@ Alec Shane Benjamin is an american songwriter who has written over 3 albums in S
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/3p4nuM8n3Z7vt0YBeHbcSz?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+  He also has an EP of songs written in Mandarin
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/2mJ0LZkRQBohzHvNSNk1P0?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 ### More Fun Facts about him
   In 2023, he opened for **John Mayer** for a portion of **Mayer's Solo tour in North America**. 
 
