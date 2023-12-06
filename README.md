@@ -4,5 +4,12 @@ Bellatrix Del Rosario
 ## About Alec Benjamin 
 Alec Shane Benjamin is an american songwriter who has written over 3 albums in Spotify and his 2018 breakthrough single "Let Me Down Slowly" reached the top 40 in over 25 countries and has amassed over 1.4 billion streams on Spotify as of August 2023.
 ### How his career started
-Alec Benjamin was born in May 28, 1994 in Phoenix Arizona where he and his sister was raised. He started learning guitar in highschool and released his first extended play (EP) in 2013.
-###
+  Alec Benjamin was born in May 28, 1994 in Phoenix Arizona where he and his sister was raised. He started learning guitar in highschool and released his first extended play (EP) in 2013.
+
+  Alec signed with Columbia Records and enrolled at the University of Southern California. However, Columbia Records ended their partnership weeks after submitting his first album. Despite of this, he went to a self-funded tour in Europe to open for Marina Kaye in France, and Lea in Germany. He promoted his music by performing in parking lots outside concert venues and handing out business cards to passersby.
+
+### His albums
+
+  His album **Narrated for You** was released on November 16, 2018. It features the songs **"If We Have Each Other"**, **"Water Fountain"**, **"Annabelle's Homework"**, and **"Let Me Down Slowly"**, the latter was later re-released as a single with Alessia Cara. While promoting the album, he created the "Can I Sing for You?" videos on YouTube, in which he performs his written songs in acoustic to people in public 
+
+  Alec's debut studio album **These Two Windows** was released on May 29, 2020. It peaked at number 8 on Billboard's Top Album Sales chart. His second album, (Un)Commentary, followed on April 15, 2022.
