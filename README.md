@@ -1,5 +1,5 @@
 # Alec Benjamin 
-![alec](https://hips.hearstapps.com/vidthumb/images/2019-seventeen-lyricchallenge-ep31-alecbenjamin-ms-jk-v3-patty-1571777658.jpg?crop=0.564xw:1.00xh;0.220xw,0&resize=1200:*)
+![alec](https://hips.hearstapps.com/vidthumb/images/2019-seventeen-lyricchallenge-ep31-alecbenjamin-ms-jk-v3-patty-1571777658.jpg?crop=0.564xw:1.00xh;0.220xw,0&resize=1200:*](https://d2ljoqkkoec4f6.cloudfront.net/wp-content/uploads/2019/12/05134849/191128000000050005-2260x1600.jpg)
 ### About him
 Alec Shane Benjamin is an american songwriter who has written over 3 albums in Spotify and his 2018 breakthrough single "Let Me Down Slowly" reached the top 40 in over 25 countries and has amassed over 1.4 billion streams on Spotify as of August 2023.
 
