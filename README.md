@@ -31,6 +31,6 @@ Alec Shane Benjamin is an american songwriter who has written over 3 albums in S
 
   He speaks and sings in **Mandarin Chinese**, collaborating with popular Chinese actress **Zhao Lusi** in an Mandarin translated version of Water Fountain
 
-![zhao-alec](https://i.ytimg.com/vi/u_yiFPJF58o/sddefault.jpg)
+![zhao-alec](https://blog.associatie.kuleuven.be/kijkennaarchina/files/2022/10/97e7ceb91e98f3915476d77bd469c4b07f987841.jpg)
 
   Alec has cited influences such as **Eminem**, **John Mayer**, **Jason Mraz**, **Paul Simon**, **Joe Avneri**, and **Chris Martin of Coldplay**. He has also expressed admiration for **Kendrick Lamar** and classic singer-songwriters such as **Joni Mitchell**, **Leonard Cohen**, **Carole King**, and **Jackson Browne**.
