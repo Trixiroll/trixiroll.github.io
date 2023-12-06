@@ -1,5 +1,5 @@
 # trixiroll.github.io
 Bellatrix Del Rosario
-# My Portfolio
-### **Table of Contents**
-<iframe src="https://docs.google.com/document/d/e/2PACX-1vTWWXPIbqISdajjHaSrKbDuPvJupt4xbQrEq1yYh-fJgbRmM8Rc4YuUJq0mnjnN4nMW_mjju9pOSVKc/pub?embedded=true"></iframe>
+## Alec Benjamin
+# About Alec Benjamin 
+Alec Shane Benjamin is an american songwriter who has written over 3 albums in Spotify and his 2018 breakthrough single "Let Me Down Slowly" reached the top 40 in over 25 countries and has amassed over 1.4 billion streams on Spotify as of August 2023.
