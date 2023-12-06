@@ -1,7 +1,8 @@
 # trixiroll.github.io
 Bellatrix Del Rosario
-# Alec Benjamin
-## About Alec Benjamin 
+# Alec Benjamin 
+![alec](https://hips.hearstapps.com/vidthumb/images/2019-seventeen-lyricchallenge-ep31-alecbenjamin-ms-jk-v3-patty-1571777658.jpg?crop=0.564xw:1.00xh;0.220xw,0&resize=1200:*)
+### About him
 Alec Shane Benjamin is an american songwriter who has written over 3 albums in Spotify and his 2018 breakthrough single "Let Me Down Slowly" reached the top 40 in over 25 countries and has amassed over 1.4 billion streams on Spotify as of August 2023.
 
 ### How his career started
@@ -9,7 +10,7 @@ Alec Shane Benjamin is an american songwriter who has written over 3 albums in S
 
   Alec signed with Columbia Records and enrolled at the University of Southern California. However, Columbia Records ended their partnership weeks after submitting his first album. Despite of this, he went to a self-funded tour in Europe to open for Marina Kaye in France, and Lea in Germany. He promoted his music by performing in parking lots outside concert venues and handing out business cards to passersby.
 
-### His albums
+## His albums
 
   His album **Narrated for You** was released on November 16, 2018. It features the songs **"If We Have Each Other"**, **"Water Fountain"**, **"Annabelle's Homework"**, and **"Let Me Down Slowly"**, the latter was later re-released as a single with **Alessia Cara**. While promoting the album, he created the **"Can I Sing for You?"** videos on YouTube, in which he performs his written songs in acoustic to people in public 
 
