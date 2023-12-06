@@ -3,6 +3,7 @@ Bellatrix Del Rosario
 # Alec Benjamin
 ## About Alec Benjamin 
 Alec Shane Benjamin is an american songwriter who has written over 3 albums in Spotify and his 2018 breakthrough single "Let Me Down Slowly" reached the top 40 in over 25 countries and has amassed over 1.4 billion streams on Spotify as of August 2023.
+
 ### How his career started
   Alec Benjamin was born in May 28, 1994 in Phoenix Arizona where he and his sister was raised. He started learning guitar in highschool and released his first extended play (EP) in 2013.
 
@@ -10,7 +11,7 @@ Alec Shane Benjamin is an american songwriter who has written over 3 albums in S
 
 ### His albums
 
-  His album **Narrated for You** was released on November 16, 2018. It features the songs **"If We Have Each Other"**, **"Water Fountain"**, **"Annabelle's Homework"**, and **"Let Me Down Slowly"**, the latter was later re-released as a single with Alessia Cara. While promoting the album, he created the "Can I Sing for You?" videos on YouTube, in which he performs his written songs in acoustic to people in public 
+  His album **Narrated for You** was released on November 16, 2018. It features the songs **"If We Have Each Other"**, **"Water Fountain"**, **"Annabelle's Homework"**, and **"Let Me Down Slowly"**, the latter was later re-released as a single with **Alessia Cara**. While promoting the album, he created the **"Can I Sing for You?"** videos on YouTube, in which he performs his written songs in acoustic to people in public 
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/6jKZplJpy21R5lHaYHHjmZ?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe> 
 
@@ -18,4 +19,13 @@ Alec Shane Benjamin is an american songwriter who has written over 3 albums in S
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/3SzqS1H5dj8f450YhV9YbP?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-  His second album, (Un)Commentary, followed on April 15, 2022.
+  His second album, **(Un)Commentary**, followed on April 15, 2022. 
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5Wvcnn5547f6xz8F9Kz6rO?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+### More Fun Facts about him
+  In 2023, he opened for **John Mayer** for a portion of **Mayer's Solo tour in North America**. On 15 October of the same year, he was on the annual **Minecraft Live show** to sing a parody of his song, **Let Me Down Slowly** using words from the Minecraft game universe.
+
+  He speaks and sings in **Mandarin Chinese**, collaborating with popular Chinese actress **Zhao Lusi** in an Mandarin translated version of Water Fountain
+
+  Alec has cited influences such as **Eminem**, **John Mayer**, **Jason Mraz**, **Paul Simon**, **Joe Avneri**, and **Chris Martin of Coldplay**. He has also expressed admiration for **Kendrick Lamar** and classic singer-songwriters such as **Joni Mitchell**, **Leonard Cohen**, **Carole King**, and **Jackson Browne**.
