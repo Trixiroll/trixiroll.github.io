@@ -1,5 +1,3 @@
-# trixiroll.github.io
-Bellatrix Del Rosario
 # Alec Benjamin 
 ![alec](https://hips.hearstapps.com/vidthumb/images/2019-seventeen-lyricchallenge-ep31-alecbenjamin-ms-jk-v3-patty-1571777658.jpg?crop=0.564xw:1.00xh;0.220xw,0&resize=1200:*)
 ### About him
